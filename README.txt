@@ -1,0 +1,1 @@
+Welcome! This is the repository for the Maple Grove Senior High Programming Club! This. Is. Amazing.
